@@ -1,4 +1,4 @@
-#  
+#  updated murderers vs sheriffs 2 Script offers the most advanced murderers vs sheriffs 2 Script, with invisibility and unlimited stamina. Perfect for
 
 
 
